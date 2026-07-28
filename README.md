@@ -29,6 +29,7 @@
 
 
 - 👨‍💻 Checkout my Portfilio :-  [https://www.notion.so/Sujal-Raj-Portfolio-204ac1f919b880e88240f3eede0b1e06?source=copy_link](https://www.notion.so/Sujal-Raj-Portfolio-204ac1f919b880e88240f3eede0b1e06?source=copy_link)
+- [ https://www.profilix.online/sujal-raj] 
 
 - 📫 How to reach me **sujalraj2064@gmail.com**
 
